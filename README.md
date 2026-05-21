@@ -1,1 +1,0 @@
-# vai-spice-route-mumbai
